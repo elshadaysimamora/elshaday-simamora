@@ -1,2 +1,2 @@
-# Hi There, I'm Elshaday Simamora
+# Hi There, I'm Elshaday Simamora :wave:
 
